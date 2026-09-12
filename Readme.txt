@@ -1,3 +1,6 @@
+Sorry mate, aku gabisa ngoding jir, jadi harus make template. Maafin ya, nanti belajar hahahah
+
+Credit To :
 Thanks for downloading this template!
 
 Template Name: Style
